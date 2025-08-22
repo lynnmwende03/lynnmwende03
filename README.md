@@ -4,4 +4,4 @@
 ## 🤔 I’m looking for help with my teacher,fellow classmates and friends who have the skills and knowledge about programming.
 ## 📫 How to reach me: mwendelynn11@gmail.com
 ## 😄 Pronouns:she/her
-##⚡ Fun fact: love cooking and adventures.
+##funfact love cooking and adventures 
